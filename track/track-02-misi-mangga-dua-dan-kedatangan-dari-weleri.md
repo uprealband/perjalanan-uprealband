@@ -82,3 +82,12 @@ Jawabannya ternyata baru akan mereka temukan pada perjalanan berikutnya.
 * Musik Indonesia
 * Era 2000-an
 * Uprealband
+
+  ---
+
+## Navigasi Track
+
+⬅️ [Track 01 - Operasi Merayu Gerry](track-01-operasi-merayu-gerry.md)
+
+➡️ [Track 03 - Sersan (Serius Tapi Santai) Alur Tersasar](track-03-sersan-serius-tapi-santai-alur-tersasar.md)
+
