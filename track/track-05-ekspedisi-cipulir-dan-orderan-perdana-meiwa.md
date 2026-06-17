@@ -65,3 +65,11 @@ Dan yang paling penting, apakah Uprealband akan kembali fokus ke studio musik, a
 * Kaos band
 * Era 2000-an
 * Uprealband
+
+---
+
+## Navigasi Track
+
+⬅️ [Track 04 - Workshop Kontrakan dan Experimen Absurd](track-04-workshop-kontrakan-dan-experimen-absurd.md)
+
+➡️ [Track 06 - Kontrakan Makin Sempit dan Kembalinya Sebuah Tanda](track-06-kontrakan-makin-sempit-dan-kembalinya-sebuah-tanda.md)
