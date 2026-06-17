@@ -57,3 +57,12 @@ Dan tanpa mereka sadari, keputusan kecil yang lahir dari sebuah handycam pinjama
 * Musik Indonesia
 * Era 2000-an
 * Uprealband
+
+  ---
+
+## Navigasi Track
+
+⬅️ [Track 02 - Misi Mangga Dua dan Kedatangan dari Weleri](track-02-misi-mangga-dua-dan-kedatangan-dari-weleri.md)
+
+➡️ [Track 04 - Workshop Kontrakan dan Experimen Absurd](track-04-workshop-kontrakan-dan-experimen-absurd.md)
+
