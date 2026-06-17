@@ -57,3 +57,12 @@ Tempatnya sudah sempit dan dipenuhi alat-alat sablon serta tumpukan kemasan, tet
 Apakah ini pertanda bahwa naluri bermusik mereka memang menolak mati di tengah cuan konveksi yang semakin menjanjikan setelah proyek sekolah dan pabrik MEIWA?
 
 Dan yang paling penting, jika orang-orang dari pabrik MEIWA benar-benar datang berkunjung, apa reaksi mereka saat melihat workshop sederhana milik Uprealband itu?
+
+---
+
+## Navigasi Track
+
+⬅️ [Track 05 - Ekspedisi Cipulir dan Orderan Perdana MEIWA](track-05-ekspedisi-cipulir-dan-orderan-perdana-meiwa.md)
+
+🏠 [Kembali ke Beranda](../README.md)
+
