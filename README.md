@@ -48,7 +48,7 @@ Karena Uprealband tidak pernah menjadi band yang terkenal. Tetapi perjalanan ini
 
 ## Filosofi
 
-** Rcok N Real **
+** Rock N Real **
 
 ** Rock N Rules **
 
