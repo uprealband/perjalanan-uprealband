@@ -139,5 +139,10 @@ Sekarang, petualangan Uprealband, band indie asal Depok, untuk mencari manusia y
 - Era 2000-an
 - Uprealband
 
+---
+
+## Track Berikutnya
+
+➡️ [Track 02 - Misi Mangga Dua dan Kedatangan dari Weleri](track-02-misi-mangga-dua-dan-kedatangan-dari-weleri.md)
 
 
