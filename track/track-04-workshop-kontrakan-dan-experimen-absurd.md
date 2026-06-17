@@ -60,3 +60,12 @@ Atau jangan-jangan, Uprealband malah semakin tersesat dan lebih nyaman menjadi t
 * Musik Indonesia
 * Era 2000-an
 * Uprealband
+
+---
+
+## Navigasi Track
+
+⬅️ [Track 03 - Sersan (Serius Tapi Santai) Alur Tersasar](track-03-sersan-serius-tapi-santai-alur-tersasar.md)
+
+➡️ [Track 05 - Ekspedisi Cipulir dan Orderan Perdana MEIWA](track-05-ekspedisi-cipulir-dan-orderan-perdana-meiwa.md)
+
