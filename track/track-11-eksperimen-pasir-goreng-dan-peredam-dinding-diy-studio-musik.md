@@ -1,0 +1,24 @@
+### TRACK 11: EKSPERIMEN PASIR GORENG DAN PEREDAM NINJA DIY
+
+Hari demi hari berlalu, tahap pengerjaan interior studio terus berjalan. Di tengah proses itu, lahir sebuah pemandangan yang terhitung aneh di halaman depan kontrakan. Obhik, Temmy, dan Dewa terlihat sibuk menggoreng pasir. Ya, pasir hitam yang biasa dipakai untuk konstruksi bangunan sengaja mereka sangrai di atas wajan. Saking ekstremnya proses pengeringan itu, wajan dapur pun sampai ikut menjadi korban hingga bolong-bolong. Hahaha... 
+
+Entah dari mana ilmu itu didapat, pasir yang digoreng kering tanpa minyak itu ternyata disiapkan untuk mengisi struktur lantai studio utama. Jadi, di atas lantai asli berukuran sekitar 3x6 meter itu, mereka memasang rangka balok-balok kayu berbentuk kotak-kotak. Rongga di dalam kotak kayu itulah yang kemudian diisi penuh dengan pasir yang sudah dipastikan kering total. Bisa dibayangkan betapa banyaknya pasir yang harus mereka goreng secara manual saat itu. Setelah seluruh rongga pasir terisi padat, barulah bagian atas lantai ditutup menggunakan multipleks tebal, diwarnai dengan pewarna kayu, lalu diberi sentuhan akhir menggunakan pernis hingga mengkilap layaknya lantai kayu mewah. Hahaha...
+
+Sementara untuk interior dinding, perlakuan yang diterapkan hampir sama. Rangka dari kayu kaso dipasang dan dipaku langsung ke tembok dengan jarak tertentu. Selanjutnya, rongga-rongga di antara balok kayu tersebut dijejali dengan *glasswool*. Perlu diingat, seingat Bany pada masa itu belum ada material *rockwool* seperti zaman sekarang. Karena serpihan *glasswool* sangat rentan memicu gatal-gatal di kulit dan debunya beterbangan ke mana-mana, anak-anak yang bertugas memasangnya terpaksa memutar otak. Saat proses pemasangan, wajah mereka ditutup rapat menggunakan kaos cadangan layaknya seorang ninja. Hahaha... Hanya bagian mata saja yang kelihatan, sementara hidung dan mulut sengaja dibungkus kaos agar tidak menghirup debu halus *glasswool*. Begitu urusan *glasswool* beres, barulah dinding ditutup rapat menggunakan papan gipsum—di sinilah momen kocak Obhik dan Gerry memotong gipsum terjadi—lalu setiap celah antar-gipsum diratakan menggunakan kompon.
+
+Setelah seluruh gipsum terpasang kokoh, Bany yang masih aktif bekerja di Jakarta menyempatkan diri mampir ke toko karpet di sekitaran Pasar Jatinegara karena lokasinya searah dengan rute pulang ke Depok. Bany membeli lem kuning ukuran kaleng besar, entah yang berkapasitas 5 kg atau 10 kg, serta karpet lantai berwarna merah menyala. Bany agak lupa bagaimana teknis pengiriman karpet besar tersebut, namun dia ingat betul momen saat membeli kain sofa orange (bukan kulit sintetis) untuk tahap penyelesaian dinding. Kain sofa itu difungsikan sebagai penutup dinding bagian bawah, mulai dari batas lantai hingga ketinggian 100-130 cm di atasnya. Kelak, garis sambungan antara kain sofa di bawah dan karpet di dinding bagian atas dipercantik dengan potongan kayu bermotif yang dibeli dari toko kayu Madura pinggir jalan. Menariknya, kain sofa orange tebal itu benar-benar diangkut sendiri oleh Bany dari Jatinegara ke Depok menggunakan motor Supra X tahun 2002 miliknya. Hahaha... Kain itu diikat kuat-kuat di jok belakang dan dibawa berkendara sendirian. Pemilihan warna orange yang mencolok ini ternyata membekas kuat di memori tim, sampai-sampai kelak warna orange ini resmi dipakai sebagai warna logo pada masa-masa promosi online berikutnya sebagai pengingat sejarah perjuangan mereka.
+
+Prinsip sistem peredaman suara dikerjakan menggunakan kombinasi teknik dan bahan-bahan tersebut hingga menyentuh area langit-langit. Namun, khusus untuk bagian langit-langit, tim menambahkan material unik berupa busa bekas pembungkus buah berwarna ungu. Biar tampilannya senada dengan konsep ruangan, busa bekas buah itu dicat ulang terlebih dahulu menggunakan cat tembok warna orange. Busa-busa buah tersebut sengaja dipungut subuh-subuh oleh Bany, Dewa, dan Temmy di pasar rebo demi mengirit biaya pembangunan. Hahaha... Pemasangan busa buah di langit-langit dilakukan dengan metode pengeleman. Namun sebelum diberi lem, busa tersebut dikunci posisinya menggunakan steples tembak manual yang dibeli Bany dari tukang perkakas pinggir jalan di Pasar Jatinegara.
+
+Nah, di momen-momen saat barang-barang berukuran besar seperti tumpukan gipsum, gulungan *glasswool*, dan karpet merah mulai berdatangan ke lokasi, Babe yang awalnya ragu akhirnya tersadar. Sambil melihat kesibukan di workshop, Babe spontan berujar, “Wah mereka serius ternyata!!!”
+
+Melihat ruang fisik studio yang sudah mulai terbentuk rapi secara swadaya, sebuah tantangan teknis baru pun langsung mengintip di depan mata. Lalu, bagaimana dengan urusan pengaturan sistem suaranya nanti?
+
+Simak halaman berikutnya....
+
+---
+
+#### Navigasi Track
+
+⬅️ [Track 10 - Cetak Biru Kapur Tulis dan Komedi Gipsum DIY](track-10-desain-interior-diy-studio-musik-uprealband-2004.md)
+🏠 [Kembali ke Beranda](../README.md)
