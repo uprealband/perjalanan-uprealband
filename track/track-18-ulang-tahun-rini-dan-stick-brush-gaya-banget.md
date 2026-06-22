@@ -80,7 +80,11 @@ Kelihatannya gaya.
 
 Hahaha...
 
-Foto acara ini masih ada hingga sekarang.
+## Dokumentasi
+
+![Suasana ulang tahun Rini](Photo/2005/ulangtahun-rini.jpg)
+
+*Foto acara ulang tahun Rini yang masih tersimpan hingga sekarang. Dari foto-foto inilah terlihat betapa santainya suasana malam tersebut.*
 
 Dari foto-foto itulah terlihat betapa santainya suasana malam tersebut.
 
