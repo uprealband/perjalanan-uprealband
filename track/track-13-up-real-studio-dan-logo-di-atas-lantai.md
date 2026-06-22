@@ -24,6 +24,6 @@ Seperti apa reaksi mereka ketika pertama kali menginjakkan kaki di UP-REAL Studi
 
 ## Navigasi Track
 
-⬅️ Track 12 - Kabel Pinangsia dan Amplifier Rakitan
+⬅️ Track 12 - Kabel Pinangsia dan Amplifier Rakitan (tautan navigasi tidak aktif pada tampilan ini)
 
 🏠 Kembali ke Beranda
