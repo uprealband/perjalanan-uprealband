@@ -82,7 +82,7 @@ Hahaha...
 
 ## Dokumentasi
 
-![Suasana ulang tahun Rini](Photo/2005/ulangtahun-rini.jpg)
+![Suasana ulang tahun Rini](https://raw.githubusercontent.com/uprealband/perjalanan-uprealband/refs/heads/main/Photo/2005/ulangtahun-rini.jpg)
 
 *Foto acara ulang tahun Rini yang masih tersimpan hingga sekarang. Dari foto-foto inilah terlihat betapa santainya suasana malam tersebut.*
 
