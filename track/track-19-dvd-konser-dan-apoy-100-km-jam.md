@@ -42,23 +42,69 @@ Di masa yang sama, Jon juga memberanikan diri membeli handycam Sony CCD secara k
 
 Dan tanpa disadari, handycam itu kelak menjadi salah satu senjata penting Uprealband. Berkat kamera itulah dokumentasi perjalanan mereka akhirnya bisa tersimpan cukup lengkap hingga sekarang.
 
-Pelan-pelan, Uprealband mulai berani manggung lagi. Salah satunya mengikuti festival band yang diselenggarakan Universitas Jayabaya di Jalan Raya Bogor.
+Pelan-pelan, Uprealband mulai berani manggung lagi. Salah satunya mengikuti festival band yang diselenggarakan oleh Universitas Jayabaya di Jalan Raya Bogor.
 
 Saat itu mereka membawakan lagu ciptaan sendiri yang berjudul "Rindu". Mereka kompak memakai kaos hitam bersablon logo @up-real. Ahenk pun hadir menonton sambil mengajak teman-temannya.
 
-Selain lagu "Rindu", Bany sudah agak lupa lagu kedua yang dibawakan. Sebenarnya video penampilan itu ada. Sayangnya, hingga buku ini ditulis, video yang sudah dipindahkan ke bentuk DVD tersebut belum berhasil ditemukan. Padahal dulu rekaman itu termasuk yang paling sering diputar di studio.
+Nah di sela-sela menunggu giliran tampil, ada satu kejadian yang sampai sekarang masih bikin anak-anak Uprealband ketawa kalau mengingatnya.
+
+Entah kenapa Gerry yang memang orangnya gampang akrab langsung sok kenal dengan salah satu penonton.
+
+"Woy, anak mana lu?" tanyanya.
+
+Sambil ngomong begitu, Gerry langsung merangkul orang itu dari belakang.
+
+Masalahnya, dengan badan Gerry yang tinggi besar, ditambah gaya kerjanya yang saat itu memang di bidang keamanan, rangkulan itu malah lebih mirip pegangan orang yang mau ngangkat orang buat dibanting daripada ngajak kenalan, wkwkwkwk...
+
+Sontak Bany, Jon, dan yang lain langsung waswas.
+
+"Duh Ger, gaya gawe jangan dibawa-bawa..." pikir mereka dalam hati.
+
+Maklum, saat itu Gerry memang masih agak temperamen. Makanya dulu waktu Bany dan Jon mau membujuk dia pindah posisi jadi bassist, Bany bahkan lebih memilih nunggu di luar rumah Gerry dulu, hahahahaha...
+
+Untungnya orang yang dirangkul itu santai dan malah ikut ketawa. Kalau enggak, mungkin sebelum tampil di festival, Uprealband sudah lebih dulu tampil di ring tinju, hahaha...
+
+Selain lagu "Rindu", Bany sudah agak lupa lagu kedua yang dibawakan. Untungnya, penampilan saat itu sempat direkam menggunakan handycam. Dan lucunya, bukan cuma aksi di atas panggung saja yang terekam.
+
+Ada juga rekaman setelah acara selesai. Terlihat anak-anak Uprealband berjalan bersama Ahenk keluar dari area kampus menuju parkiran motor. Bukannya muka murung karena kalah, mereka malah terlihat ketawa-ketawa seperti habis pulang nongkrong biasa.
 
 Dan hasil festivalnya?
 
-UPREALBAND GAK JUARA HAHAHAHAHA!!!
+**UPREALBAND GAK JUARA HAHAHAHAHA!!!**
 
-Tapi anehnya, tidak ada yang terlalu sedih.
+Tapi memang gak ada yang sedih.
 
-Karena saat itu yang lebih penting bukan soal juara atau tidak.
+Buat mereka, bisa manggung lagi, ketemu teman-teman, dan pulang bareng sambil ketawa-ketawa saja rasanya sudah menyenangkan.
 
-Anak-anak Uprealband pelan-pelan mulai menyadari bahwa mereka sedang belajar untuk naik kelas.
+Mungkin karena sejak awal, anak-anak Uprealband memang lebih menikmati perjalanannya daripada mengejar pialanya.
+
+Dan pelan-pelan, mereka mulai sadar kalau perjalanan mereka ternyata masih panjang.
 
 Walaupun kadang masih seperti mobil 60 km/jam yang berusaha mengejar Apoy yang sudah ngebut di 100 km/jam, hahahahaha...
+
+Lucunya, saat itu Jon yang masih sering angkat tangan kalau diajari Mbah Emil, sama sekali belum menyangka kalau beberapa tahun kemudian, tepatnya saat tour beberapa kota pada tahun 2009, dirinya justru sering mendapat pujian dari gitaris-gitaris band lain.
+
+"Bunyi gitar rekaman sama live lu kok sama sih?"
+
+"Sound gitarnya bikin gimana?"
+
+"Belajar dari mana?"
+
+Kurang lebih pertanyaan-pertanyaan seperti itulah yang nantinya sering didengar Jon.
+
+Padahal kalau mengingat masa-masa tahun 2005 ini, Jon masih sering berkata,
+
+"Gue gak bisa Mbah kalau kayak begitu!!!"
+
+Dan siapa sangka, orang yang dulu masih suka kebawa gaya kerja dan terkenal agak temperamen itu pun, kelak juga akan mengalami perubahan yang cukup besar dalam hidupnya.
+
+Tapi itu semua masih beberapa tahun lagi.
+
+Saat itu, anak-anak Uprealband cuma tahu satu hal.
+
+Mereka sedang menikmati perjalanan.
+
+Dan ternyata, perjalanan itu masih panjang.
 
 **Yuk, intip kelanjutannya di halaman berikutnya....**
 
