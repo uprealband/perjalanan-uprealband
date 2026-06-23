@@ -3,7 +3,7 @@
 Semua akhirnya sudah terpasang. Anak-anak Uprealband dan crew pun mulai memikirkan bagaimana caranya supaya studio yang susah payah mereka bangun itu bisa dikenal orang. Akhirnya dibuatlah selebaran sederhana hasil fotokopian.  
 
 Kebetulan lokasi studio memang dekat dengan beberapa sekolah, mulai dari SMP sampai SMA. Bahkan salah satunya adalah sekolah tempat Bany dan Gerry dulu pernah menuntut ilmu. Selebaran-selebaran itu pun dibagikan saat jam pulang sekolah.
-
+  
 Dan ternyata cara sederhana itu cukup berhasil. Seingat Bany, ada beberapa band anak SMU yang akhirnya datang dan mencoba latihan di UP-REAL Studio.
 
 Sesuai rencana yang sudah dibahas sebelumnya, sebelum masuk studio para penyewa langsung disuguhi air mineral gelas. Lalu saat mereka masuk, bumper musik yang dibuat Obhik diputar terlebih dahulu. Begitu para personel sudah siap memainkan alat musiknya, bumper pun dimatikan.
