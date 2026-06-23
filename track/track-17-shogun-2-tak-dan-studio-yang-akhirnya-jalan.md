@@ -1,6 +1,6 @@
 # TRACK 17: SUZUKI TORNADO 2 TAK DAN STUDIO YANG AKHIRNYA JALAN
 
-Semua akhirnya sudah terpasang. Anak-anak Uprealband dan crew pun mulai memikirkan bagaimana caranya supaya studio yang susah payah mereka bangun itu bisa dikenal orang. Akhirnya dibuatlah selebaran sederhana hasil fotokopian.
+Semua akhirnya sudah terpasang. Anak-anak Uprealband dan crew pun mulai memikirkan bagaimana caranya supaya studio yang susah payah mereka bangun itu bisa dikenal orang. Akhirnya dibuatlah selebaran sederhana hasil fotokopian.  
 
 Kebetulan lokasi studio memang dekat dengan beberapa sekolah, mulai dari SMP sampai SMA. Bahkan salah satunya adalah sekolah tempat Bany dan Gerry dulu pernah menuntut ilmu. Selebaran-selebaran itu pun dibagikan saat jam pulang sekolah.
 
