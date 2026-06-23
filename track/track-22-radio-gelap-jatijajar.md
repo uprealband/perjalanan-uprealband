@@ -24,6 +24,12 @@ Nama radionya Bany sudah mulai agak lupa.
 
 Hehehe...
 
+Di fase ini, Obhik juga mulai menggarap rekaman dengan lebih serius layaknya seorang sound engineer.
+
+Sudah mulai mencoba take vokal menggunakan komputer dan soundcard seadanya.
+
+Kalau tidak salah masih zamannya Sound Blaster.
+
 Karena kebutuhan itulah, beberapa lagu lama mulai dibongkar kembali.
 
 Semua instrumen diulang.
@@ -32,93 +38,31 @@ Semua materi diperiksa lagi.
 
 Dan semuanya mulai dikerjakan lebih serius.
 
-Salah satu lagu yang ikut dibongkar ulang adalah "Harap Maklum".
-
-Saat itu Apoy kembali berkomentar.
-
-"Lagunya bagus, tapi jadul. Berasa 90-an banget."
-
-Wkwkwkw...
-
-Dan anehnya, komentar itu tidak membuat Bany tersinggung.
-
-Karena Bany sadar, Uprealband memang membutuhkan sudut pandang baru.
-
-Apalagi personel lain sudah mulai sibuk dengan pekerjaan masing-masing.
-
-Bany sendiri saat itu masih bekerja di Jakarta.
-
-Sedangkan Apoy mempunyai waktu yang lebih banyak untuk mengikuti perkembangan musik.
-
-Pelan-pelan, Apoy seperti menjadi bank referensi berjalan.
-
-Kalau ada musik baru, Apoy tahu.
-
-Kalau ada sound drum yang menarik, Apoy tahu.
-
-Kalau ada aransemen yang sedang berkembang, Apoy tahu.
-
-Hahaha...
-
-Dan ketika akhir pekan tiba, semuanya dibahas bersama di studio.
-
-Sedikit demi sedikit.
-
 Di tengah berbagai kesibukan itu, lagu "Harap Maklum" ikut direkam ulang.
 
 Dan seperti biasa, ada saja kejadian lucu.
 
-Karena terburu-buru dan berbagai kesibukan lainnya, Bany hanya sempat melakukan satu kali take vokal.
+Bany hanya sempat melakukan satu kali take vokal.
 
-Tidak ada take kedua.
+Karena lagunya sudah ditunggu Iwel untuk dibawa ke radio gelap Jatijajar.
 
-Tidak ada take ketiga.
+Dan setelah mendengarkan hasilnya, Obhik langsung bilang.
 
-Rekam.
-
-Selesai.
-
-Begitu saja.
-
-Wkwkwkw...
-
-Dan anehnya, ketika didengar kembali, hasilnya dirasa cukup.
+"Udah, cukup."
 
 Ya sudah.
 
 Dipakai saja.
 
-Hehehe...
-
-Di masa itu pula, Obhik mulai semakin serius melakukan berbagai percobaan sebagai sound engineer.
-
-Mulai dari proses rekaman.
-
-Mixing.
-
-Sampai berbagai eksperimen sound.
-
-Hahaha...
+Dan anehnya, take vokal itu akhirnya terus bertahan.
 
 Lucunya lagi, saat mixing, Apoy mulai memasukkan beberapa sound sampling yang saat itu terasa lebih modern.
 
-Sedikit demi sedikit.
+Bahkan ketika album Evolution mulai disusun beberapa tahun kemudian, vokal tersebut tetap dipakai.
 
-Dan sentuhan-sentuhan itu akhirnya tetap dipakai.
+Tidak direkam ulang.
 
-Saat itu semuanya terasa biasa saja.
-
-Anak-anak Upreal tetap sibuk dengan pekerjaan masing-masing.
-
-Dan kalau akhir pekan tiba, mereka kembali berkumpul di studio.
-
-Latihan lagi.
-
-Ngoprek lagi.
-
-Dan ketawa lagi.
-
-Hehehe...
+Hahaha...
 
 Tidak ada seorang pun yang menyangka, beberapa lagu yang saat itu dikerjakan sambil lalu ternyata masih terus bertahan.
 
