@@ -1,4 +1,4 @@
-# TRACK 17: SHOGUN 2 TAK DAN STUDIO YANG AKHIRNYA JALAN
+# TRACK 17: SUZUKI TORNADO 2 TAK DAN STUDIO YANG AKHIRNYA JALAN
 
 Semua akhirnya sudah terpasang. Anak-anak Uprealband dan crew pun mulai memikirkan bagaimana caranya supaya studio yang susah payah mereka bangun itu bisa dikenal orang. Akhirnya dibuatlah selebaran sederhana hasil fotokopian.
 
@@ -30,7 +30,7 @@ Gerry langsung ketawa.
 
 Jon yang mendengar itu langsung ikut nimbrung.
 
-"Iyak. Pakai motor andalan gue, Suzuki Shogun 2-tak hijau ala Satria Baja Hitam, hahahahaha..."
+"Iyak. Pakai motor andalan gue, Suzuki Tornado 2-tak hijau ala Satria Baja Hitam, hahahahaha..."
 
 "Banyak jasanya itu motor," timpal Gerry sambil tertawa.
 
