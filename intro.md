@@ -4,11 +4,11 @@ Puluhan tahun berlalu. Generasi baru bermunculan, teknologi berubah, dan cara or
 
 Suatu hari, di tengah zaman yang serba cepat itu, seorang anak bertanya kepada ayahnya.
 
-"Pah, Papa 'kan nge-band udah lama..."
+“Pah, Papa 'kan udah lama nge-band…”
 
-"Kenapa masih tetap eksis sih?"
+“Kenapa masih jalan terus sih?”
 
-"Emang masih ada yang dengerin?"
+“Emang masih ada yang dengerin?”
 
 Sang Papa hanya tersenyum kecil, lalu matanya kembali menatap foto-foto lama yang tergantung di dinding. Ada wajah-wajah yang sebagian sudah menua. Ada yang datang, ada yang pergi. Ada yang menikah, ada yang pindah kota. Dan ada yang, entah bagaimana, masih berjalan bersama sampai hari ini.
 
