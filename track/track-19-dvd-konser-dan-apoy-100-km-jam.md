@@ -38,7 +38,7 @@ Selain teknik gitar, Mbah Emil juga sempat ngajarin berbagai hal tentang aransem
 
 Masa-masa itu memang amburadul-amburadulnya. Semua orang seperti sedang belajar lagi dari awal. Tidak ada yang gengsi untuk bertanya, tidak ada yang malu untuk belajar.
 
-Di masa yang sama, Jon juga memberanikan diri membeli handycam Sony CCD secara kredit. Kalau tidak salah, saat itu CCD termasuk yang paling oke kualitasnya. Maklum, ini masih tahun 2005, hehehe...
+Di masa yang sama, Jon juga memberanikan diri membeli handycam Panasonic CCD secara kredit. Kalau tidak salah, saat itu CCD termasuk yang paling oke kualitasnya. Maklum, ini masih tahun 2005, hehehe...
 
 Dan tanpa disadari, handycam itu kelak menjadi salah satu senjata penting Uprealband. Berkat kamera itulah dokumentasi perjalanan mereka akhirnya bisa tersimpan cukup lengkap hingga sekarang.
 
