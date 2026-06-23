@@ -10,7 +10,7 @@ Melihat selebaran itu, Bany langsung menunjukkan kepada Gerry.
 
 "Jajal aje bro, sama formasi sekarang. Kalah menang bodo amat, yang penting pengalaman," jawab Bany.
 
-Jon langsung ikut tertawa.
+Jon langsung ikut tertawa....
 
 "Lha lu lupa? Sebelum sama Apoy kita iseng doang malah juara dua, walau tingkat kelurahan, hahaha..."
 
