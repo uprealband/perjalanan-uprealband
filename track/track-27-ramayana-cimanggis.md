@@ -24,6 +24,10 @@ Wkwkwkw...
 
 Di masa itu pula, handycam Panasonic CCD yang dibeli secara kredit oleh Jon Fadly sudah mulai digunakan untuk mendokumentasikan berbagai kegiatan Uprealband.
 
+Temmy saat itu ikut menjadi kameramen.
+
+Sedangkan Opang dan Dewa juga ikut membantu sebagai crew.
+
 Dan hingga buku ini ditulis, video penampilan babak penyisihan tersebut masih tersimpan di Official YouTube Uprealband.
 
 Link videonya:
