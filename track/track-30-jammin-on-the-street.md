@@ -8,7 +8,7 @@ Lia lah yang pernah membantu Uprealband saat melakukan rekaman live di Wings Stu
 
 Dari hasil rekaman live tersebut, Obhik, Lia dan Glen kemudian mencoba mengolahnya agar terdengar seperti rekaman multi track. Pada masa itu posisi bass Uprealband masih kosong, sehingga Glen mengisi permainan bassnya. Sedangkan Lia ikut mengisi backing vocal pada lagu "Terbang Melayang".
 
-Ketika Markas Studio mulai jadi pun, Lia tetap sering berada di studio. Dan suatu saat, Lia mengabarkan bahwa Jammin On The Street yang kedua akan kembali digelar.
+Ketika studio mulai jadi pun, Lia tetap sering berada di sana. Dan suatu saat, Lia mengabarkan bahwa Jammin On The Street yang kedua akan kembali digelar.
 
 Pada gelaran yang pertama, Uprealband sebenarnya juga hadir, namun belum ikut mengisi acara tersebut. Bany masih ingat, saat itu Derry sempat ikut jamming bersama Mbah Emil di gitar membawakan lagu "Smoke on the Water".
 
@@ -56,15 +56,7 @@ Namun justru gitar sederhana itulah yang menemani Bany sejak masa sekolah.
 
 Dan gitar tersebut ternyata masih ada sampai sekarang.
 
-Bahkan beberapa waktu lalu sempat diperbaiki karena anak Bany ingin belajar gitar.
-
-Namun namanya juga masih anak SD.
-
-Ya tahu sendiri.
-
-Kadang semangat.
-
-Kadang cepat bosan.
+Bahkan beberapa waktu lalu sempat diperbaiki karena anak Bany ingin belajar gitar. Namun namanya juga masih anak SD, ya tahu sendiri, kadang semangat, kadang cepat bosan.
 
 Hahaha...
 
@@ -101,25 +93,5 @@ Jadi sementara teman-teman yang lain sedang sibuk membuat kaos untuk Jammin On T
 Dan mungkin tidak ada seorang pun yang menyangka saat itu.
 
 Bahwa dari sebuah gitar Genta yang dibeli dua anak sekolah di Pasar Cibinong, diam-diam sedang lahir sebuah lagu yang kelak ikut mengisi album Evolution.
-
-Hahaha...
-
-Dan seperti banyak hal lain di semesta Uprealband, semuanya berjalan begitu saja.
-
-Tidak ada target besar.
-
-Tidak ada rapat.
-
-Tidak ada yang berpikir sedang membuat sejarah.
-
-Hanya sekumpulan anak-anak yang sedang sibuk dengan urusannya masing-masing.
-
-Ada yang membuat kaos.
-
-Ada yang menggambar desain.
-
-Ada yang mengurus acara.
-
-Dan ada pula yang tanpa sengaja sedang melahirkan sebuah lagu.
 
 Hahaha...
