@@ -26,4 +26,4 @@ Di akhir acara, Uprealband mendapatkan Juara Harapan 2.
 
 Namun, setelah festival selesai, dampak tak terduga justru terjadi. Pihak EO yang menyelenggarakan festival tersebut justru sering menghubungi dan mengundang Uprealband kembali untuk mengisi acara-acara mereka berikutnya, bukan lagi sebagai peserta kompetisi, melainkan sebagai guest star dan mulai mendapatkan fee manggung.
 
-Dari sinilah Uprealband menjadi akrab dengan Muklis, sosok dari EO MGS Production yang menjadi pihak penyelenggara festival tersebut.
+Dari sinilah Uprealband kemudian menjadi akrab dengan Muklis, sosok dari EO MGS Production yang menjadi pihak penyelenggara festival tersebut. Muklis sendiri memang beberapa kali pernah datang ke studio. Namun, Bany sudah agak lupa apakah perkenalan pertama mereka terjadi saat penyerahan piala dan piagam, atau justru setelah Uprealband beberapa kali kembali diundang mengisi acara. Yang jelas, hubungan baik tersebut terus berlanjut di tahun-tahun berikutnya.
