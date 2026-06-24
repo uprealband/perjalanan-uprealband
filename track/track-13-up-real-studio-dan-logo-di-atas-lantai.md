@@ -17,7 +17,7 @@ Untuk dindingnya, Bany teringat sebuah buku yang pernah dibelinya tentang cara-c
 ## Dokumentasi
 
 ![Proses pembangunan Markas Studio dan crew](https://raw.githubusercontent.com/uprealband/perjalanan-uprealband/main/Photo/2005/proses%20pembangunan%20studio%20n%20crew.png)
-*Proses pembangunan Markas Studio tahun 2005.*
+*Proses pembangunan @up-real Studio tahun 2005.*
 > kiri-kanan : Bany, Jon, Opang, Ipel (kapos hitam) Dewa (kaos merah, Temmy
 > foto menikmati masakan emaknya bany, begini suasana gotong royong saat itu - 27 Maret 2005
 
