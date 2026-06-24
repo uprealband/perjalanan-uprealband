@@ -14,6 +14,13 @@ Sementara itu, bagian ruang tamu studio juga mulai dipercantik sedikit demi sedi
 
 Untuk dindingnya, Bany teringat sebuah buku yang pernah dibelinya tentang cara-cara kreatif menghias rumah dengan biaya murah. Dari situ muncul ide memanfaatkan sisa kompon gipsum. Guratan-guratan tipis dibuat secara acak di beberapa bagian dinding. Lucunya, ketika terkena cahaya, muncul bayangan-bayangan yang justru membuat dinding terlihat lebih hidup.
 
+## Dokumentasi
+
+![Proses pembangunan Markas Studio dan crew](https://raw.githubusercontent.com/uprealband/perjalanan-uprealband/main/Photo/2005/proses%20pembangunan%20studio%20n%20crew.png)
+*Proses pembangunan Markas Studio tahun 2005.*
+> kiri-kanan : Bany, Jon, Opang, Ipel (kapos hitam) Dewa (kaos merah, Temmy
+> foto menikmati masakan emaknya bany, begini suasana gotong royong saat itu - 27 Maret 2005
+
 Jadilah ruang tamu studio yang tadinya biasa saja mulai terasa seperti markas anak band. Ada poster musik, ada dinding dengan tekstur buatan tangan, pokoknya sedikit demi sedikit suasananya mulai terasa berbeda.
 
 Kini nama UP-REAL Studio sudah terpampang, logo besar di tengah lantai pun sudah selesai dibuat. Sedikit demi sedikit, markas impian mereka mulai terlihat seperti studio sungguhan. Namun, sebelum sempat memikirkan urusan rekaman, para teman dan musisi mulai berdatangan untuk melihat markas baru tersebut.
