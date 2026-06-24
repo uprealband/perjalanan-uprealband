@@ -38,6 +38,12 @@ Namun perhatian orang memang kadang mudah terpecah.
 
 Ketika giliran Uprealband tampil, entah mendapat keberanian dari mana, Bany malah berorasi kepada orang-orang yang ada di depannya.
 
+> Bany saat tampil di Jammin On The Street II, 28 Mei 2005.
+>
+> Di tangannya masih terlihat secarik kertas berisi ucapan terima kasih kepada pihak-pihak yang terlibat dalam acara tersebut.
+>
+> ![Jammin On The Street II](../Photo/2005/Jammin%20On%20the%20street%2028mei05.JPG)
+
 "Please dong..."
 
 "Kalau ada yang manggung, saling dukung."
@@ -76,6 +82,8 @@ Malah suasana menjadi semakin cair.
 
 Sementara itu, Apoy yang duduk di belakang drum malam itu mengenakan kaus hitam polos dan topi bermotif army.
 
+![Apoy saat tampil di Jammin On The Street II tahun 2005.](../Photo/2005/apoy2%20on%20jammin%20on%20the%20street%202005.jpg)
+
 Masih khas anak-anak yang mengerjakan semuanya sendiri.
 
 Sedangkan Gerry malam itu memainkan bass Maison milik Jon.
@@ -87,6 +95,8 @@ Dan seperti banyak peralatan Uprealband lainnya saat itu, alat musik yang diguna
 Apa yang ada, itulah yang dipakai.
 
 Hahaha...
+
+> ![Jon di Jammin On The Street II 2005](../Photo/2005/Jon%20on%20jammin%20on%20the%20street%202005.jpg)
 
 Ketika lagu "Yang Khan Abadi" dimainkan, Bany memberi kode kepada personel lainnya untuk memperpanjang bagian reff.
 
@@ -182,6 +192,10 @@ Padahal, sosok Obhik termasuk orang yang jarang keluar rumah.
 
 Hahaha...
 
+> Obhik bersama teman-temannya sekitar tahun 2005. Sosok yang dikenal jarang keluar rumah itu ternyata ikut hadir pada malam Jammin On The Street.
+>
+> ![Obhik bersama teman-temannya sekitar tahun 2005](../Photo/2005/Obhik%20friends.jpg)
+
 Dan Anus, Om-nya Apoy yang dulu merekomendasikan Apoy sebagai drummer Uprealband, ternyata juga ikut menonton malam itu.
 
 Saat buku ini ditulis, Anus sendiri sudah meninggal dunia.
@@ -213,3 +227,9 @@ Dan salah satunya mungkin adalah malam ketika orang-orang yang sebelumnya tidak 
 "YANG KHAN ABADIIIIIII...!!!"
 
 Hahaha...
+
+dibawah ini juga menggambarkan era itu, pelatran jalan margonda, ada telepon umum, di pojok kiri ada 3 orang cowok, yang paling kiri namanya Ipel (temannya Obhik), obhik di tengah sedang setting handcame, sedangkan di kanan Obhik itu Temmy Crew dokumentasi / handycame uprealband
+di bagian tengah gambar ada sosok wanita namanya Novi, sering dipanggil Butet, rumahnya diseberang Studio (hadap2an dengan studio) di sebelahnya AAL kakaknya Dewa
+
+![Jammin On The Street 2005](https://raw.githubusercontent.com/uprealband/perjalanan-uprealband/main/Photo/2005/jammin%20on%20the%20street%202005.png)
+
