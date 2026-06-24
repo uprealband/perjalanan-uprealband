@@ -198,6 +198,7 @@ Hahaha...
 > ![Obhik bersama teman-temannya sekitar tahun 2005](../Photo/2005/Obhik%20friends.jpg)
 
 Dan Anus, Om-nya Apoy yang dulu merekomendasikan Apoy sebagai drummer Uprealband, ternyata juga ikut menonton malam itu.
+foto : kiri-kanan : Opang, Ipel (temannya obhik), Jon (dibelakang Ipel), Obhik, Aga Maulana, Anus (om-nya Apoy dibelakang aga, yg memakai jaket warna Biru))
 
 Saat buku ini ditulis, Anus sendiri sudah meninggal dunia.
 
