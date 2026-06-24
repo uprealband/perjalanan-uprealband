@@ -17,7 +17,7 @@ Semuanya benar-benar melantai di pelataran luas di depan deretan ruko di pinggir
 Di belakang para musisi hanya terbentang sebuah kain hitam sederhana.
 
 Di atasnya tertulis www.anakband.com.
-sebagai catatan hingga buku ini di tulis tidak begitu tahu itu website tetang apa, karena belum sempat mengunjunginya.
+sebagai catatan hingga buku ini di tulis tidak begitu tahu itu website tentang apa, karena belum sempat mengunjunginya.
 
 Dan di bawahnya tertulis:
 
