@@ -10,7 +10,7 @@ Dari hasil rekaman live tersebut, Obhik, Lia dan Glen kemudian mencoba mengolahn
 
 Ketika studio mulai jadi pun, Lia tetap sering berada di sana. Dan suatu saat, Lia mengabarkan bahwa Jammin On The Street yang kedua akan kembali digelar.
 
-Pada gelaran yang pertama, Uprealband sebenarnya juga hadir, namun belum ikut mengisi acara tersebut. Bany masih ingat, saat itu Derry sempat ikut jamming bersama Mbah Emil di gitar membawakan lagu "Smoke on the Water".
+Pada gelaran yang pertama, Uprealband sebenarnya juga hadir, namun belum ikut mengisi acara tersebut. Bany masih ingat, saat itu Derry sempat ikut jamming bersama Mbah Emil di gitar membawakan lagu "Smoke on the Water".  
 
 Menjelang gelaran yang kedua, malah tercetus ide untuk membuat kaos khusus hanya untuk acara tersebut. Beberapa waktu kemudian, Lia memberikan desain gambarnya kepada Uprealband untuk dijadikan cetakan screen sablon.
 
