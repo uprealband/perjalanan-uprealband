@@ -34,6 +34,20 @@ Setelah semuanya beres, Obhik cuma bilang santai,
 
 Mendengar itu, anak-anak Uprealband dan crew pun mulai memikirkan hal berikutnya. Kalau studio sudah siap dipakai, berarti sudah waktunya menentukan aturan main dan harga sewanya.
 
+Saat itu ruangan masih belum menggunakan AC.
+
+Terlihat sebuah kipas angin berdiri yang menjadi andalan penghuni studio saat itu.
+
+Di lantai juga terlihat logo besar @UP-REAL yang menjadi ciri khas studio pada masa awal.
+
+sedang berkumpul, berdiskusi, dan membahas lagu-lagu mereka.
+
+Dan mungkin memang seperti itulah sebagian besar waktu yang dihabiskan Uprealband pada masa-masa awal.
+
+Hahaha...
+
+![@UP-REAL Studio tahun 2005](https://raw.githubusercontent.com/uprealband/perjalanan-uprealband/main/Photo/2005/walau%20dulu%20belum%20pasang%20AC%20konsep%20jalan%20terus%20ha%20ha%20ha.jpg)
+
 **Yuk, intip kelanjutannya di halaman berikutnya....**
 
 ## Navigasi Track
