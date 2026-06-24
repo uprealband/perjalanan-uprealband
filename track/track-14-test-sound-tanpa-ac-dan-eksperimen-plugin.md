@@ -16,6 +16,10 @@ Bany, Jon, dan Gerry, walaupun tanpa Apoy yang saat itu masih mudik, akhirnya mu
 
 Tapi namanya juga Obhik, orangnya gak bisa diam. Kadang latihan malah berhenti gara-gara dia lagi penasaran. Gitar dicoba masuk ke komputer pakai plugin, lalu bass ikut dicoba, mic vokal juga dicoba macam-macam. Pokoknya masa-masa itu benar-benar diisi berbagai eksperimen dan simulasi.
 
+> Kondisi @UP-REAL Studio tahun 2005. Saat itu ruangan masih belum menggunakan AC dan masih sangat sederhana.
+
+![@UP-REAL Studio 2005](../Photo/2005/%40upreal%20studio%20...akhirnya%20jadi%20juga%202005.JPG)
+
 Sampai suatu hari Jon nyeletuk,
 
 "Kayaknya memang sudah waktunya beli AC ini, guys."
